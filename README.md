@@ -1,2 +1,0 @@
-# Notemarksocial
-Notes ashamedhumanLT
